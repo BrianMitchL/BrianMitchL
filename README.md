@@ -5,4 +5,4 @@
 - 📫 How to reach me: [@BrianMitchL](https://twitter.com/BrianMitchL) on Twitter
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm a huge fan of science-fiction 🖖🏻🚀
-- 🚴🏻‍♂️ I love biking, unless it's during the winter, then it's downhill skiing all the way ⛷
+- 🚴🏻‍♂️ I love biking all year round and do not own a car
